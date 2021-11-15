@@ -1,1 +1,1 @@
-# Fundamental-Traning
+# Fundamental-Training
